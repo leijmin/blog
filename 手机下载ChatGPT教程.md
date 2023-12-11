@@ -27,6 +27,3 @@
   ![第一步](https://weijie-video.oss-cn-shanghai.aliyuncs.com/blog/6221702313011_.pic.jpg)
 - 输入在公众号里复制的`token`(一串很长的英文字母)点击确定即可使用
   ![第一步](https://weijie-video.oss-cn-shanghai.aliyuncs.com/blog/6231702313464_.pic.jpg)
-
-> 手机使用浏览器打开也可以访问，但是没有语音对话功能
-
