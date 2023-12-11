@@ -2,7 +2,7 @@
 
 > [链接 1：200 元/年 速度快 稳定](https://portal.dc-site5.com/#/register?code=yyvHhwcG)、 [链接 2：非常便宜, 速度慢 稳定](http://kingfast.info/index.php/index/register/?yqi=3357)
 
-### 懒人的视频教程
+### 视频教程
 
 > [百度网盘 提取码: wvkg ](https://pan.baidu.com/s/1oGXoWvdCm1PVv0R1z7Asbg?pwd=wvkg)
 
